@@ -20,7 +20,7 @@
 
 [The racist language of space exploration](https://theoutline.com/post/5809/the-racist-language-of-space-exploration?zd=1&zi=r2ou3kx6) @ The Outline
 
-[https://www.nybooks.com/daily/2018/08/13/v-s-naipaul-poet-of-the-displaced/](https://www.nybooks.com/daily/2018/08/13/v-s-naipaul-poet-of-the-displaced/) @ The New York Review of Books
+[V.S. Naipaul, Poet of the Displaced](https://www.nybooks.com/daily/2018/08/13/v-s-naipaul-poet-of-the-displaced/) @ The New York Review of Books
 
 [The Bloody Legacy of Indian Partition](https://www.newyorker.com/magazine/2015/06/29/the-great-divide-books-dalrymple) @ The New Yorker
 
